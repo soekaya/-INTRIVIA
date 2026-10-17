@@ -16,3 +16,9 @@ Semoga INTRIVIA senantiasa mempertahankan nilai-nilai positif, inklusif, dan sup
 Atmosfer di dalam cluster terasa sangat hangat, kompak, dan penuh energi positif. Teman-teman satu cluster  sangat terbuka dan cepat akrab walaupun kita terbagi menjadi 2 prodi yang berbeda (TIF dan TEKKOM), sedangkan kakak-kakak fasil (Kak Valen dan Kak Nafil) sangat perhatian, ramah, dan selalu siap membimbing ketika ada hal yang kurang dipahami.
 
 Semoga kekompakan, kebersamaan, dan rasa saling dukung di cluster ini terus terjaga, tidak hanya sepanjang INTRIVIA, tetapi juga berlanjut sampai masa-masa perkuliahan nanti.
+
+## Harapan Kuliah
+
+Selama kuliah di FILKOM UB, saya ingin menjadi mahasiswa ber-prestasi di bidang saya dan sesuai passion saya. Dikarenakan saya dari prodi Teknik Komputer, saya sudah mengikuti ROBIN 2026 dan Raion Academy 2026 berharap untuk menjadi anggota dari ke-2 LOF tersebut di kemudian hari.
+
+Saya ingin memenangkan PIMNAS, GEMASTIK, Lomba-lomba Internasional maupun Nasional, dan mengembangkan portofolio saya untuk pengembangan karir saya nanti. Selain itu, saya juga ingin memiliki teman seumuran saya maupun kakak-kakak tingkat yang sefrekuensi dengan saya :>. 
